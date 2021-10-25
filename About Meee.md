@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @EQInnovation
+- 👀 I’m interested in ...innovative ideas
